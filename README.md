@@ -13,7 +13,7 @@
    L1NKS (CL1CK)
 
 
-   [<img src="https://i.pinimg.com/736x/57/08/48/5708484484b03937a68d8762de48a67b.jpg" width="55"/>](tenor.com)
+   [<img src="https://i.pinimg.com/736x/57/08/48/5708484484b03937a68d8762de48a67b.jpg" width="55"/>](https://bugsburger.atabook.org/)
    <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
 [<img src="https://i.pinimg.com/736x/3c/08/03/3c0803e246e4c2515b91e504f3958052.jpg" width="55"/>](tenor.com)
 <img src="https://files.catbox.moe/4386rj.gif" width="21"/>

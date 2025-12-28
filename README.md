@@ -17,7 +17,7 @@
    <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
 [<img src="https://i.pinimg.com/736x/3c/08/03/3c0803e246e4c2515b91e504f3958052.jpg" width="55"/>](https://www.tiktok.com/@bugsinburger)
 <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
-[<img src="https://i.pinimg.com/736x/33/a3/4a/33a34ae2c505ff43b9b94223e20b855d.jpg" width="55"/>](tenor.com)
+[<img src="https://i.pinimg.com/736x/33/a3/4a/33a34ae2c505ff43b9b94223e20b855d.jpg" width="55"/>](ill.add.my.discord.later)
 <p align="center">
  <img src="https://64.media.tumblr.com/c909a8bbe1eaf8c3a230c147b3b933c7/98aedbf31c07024c-59/s400x600/59a47a33d475b6d760e870c5528f96b511724934.gifv"/>
 

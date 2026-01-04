@@ -33,4 +33,7 @@ $${\color{#FF0000} ━━━━━━━━━━━}$$
   <p align="center">
  <img src="https://files.catbox.moe/n35vwv.gif"/>
 
-                                                                                 ill finish it later
+                                                                                 
+
+                                          
+                                                   thank you for 50 followers yay :)
